@@ -18,5 +18,6 @@ This competition is for security experts, hackers, and anyone with the skills to
 
 Good luck and may the best hacker win! 🕵️‍♂️👾
 
+https://www.youtube.com/@nonfungiblesecurity/community
 
 ![](https://yt3.ggpht.com/IhWrxZ-4W8gZ0i_-cDLP31mHUfA2gtxXt0sDftrDip2OJqi0gPwAwrVlCX-N4qlsnONWaFRUKVrXyHc=s640-c-fcrop64=1,00000000ffffffff-rw-nd-v1)
